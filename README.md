@@ -1,0 +1,2 @@
+# shorts
+Job interviews - collection
